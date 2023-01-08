@@ -7,4 +7,4 @@ https://www.level-up.one/devops-pdf-book
 
 GEORGETOWN & devops
 its true i am to never give up
-beliver  
+beliver of Jehovah  
